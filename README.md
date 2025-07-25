@@ -23,9 +23,9 @@ I'm a dedicated and proactive data analyst with a passion for extracting insight
 
 ## 🎖️ Certifications
 - **Data Analysis Certification ** - Microsoft
-- **Business Analysis Certification  - Microsoft
+- **Business Analysis Certification **  - Microsoft
 - **Data Visualization ** - TATA
-- **Data Analytics** - Deloitte
+- **Data Analytics ** - Deloitte
 
 ## 🎓 Education
 **Bachelor of Computer Applications (BCA) | Chandigarh University **  
