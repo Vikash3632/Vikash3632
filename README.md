@@ -32,7 +32,7 @@ I'm a dedicated and proactive data analyst with a passion for extracting insight
 *2021 - 2024 | Chandigarh, India*   
 
 ## 🌐 Let's Connect
-- [**Resume**](https://drive.google.com/file/d/1AMWvpSUtdh2vs7MIKF33cP6PhaMgxstf/view?usp=sharing)
+- [**Resume**](https://drive.google.com/file/d/1EkoF3Q4EbvPUAUNIxnLTNp9d6QZ1Ul0G/view?usp=sharing)
 - [**LinkedIn**](https://www.linkedin.com/in/vikash-chaudhary-12b27a1b4/)
 - **Reach out to me** - Chaudhary3632@gmail.com
 
